@@ -127,7 +127,7 @@ Furthermore, the dashboard proves that the "Degree Barrier" is softening, with a
 
 **Data Scope:** January - December 2024
 
-**Contact:** [Hadeer Altabaa LinkedIn Profile Link](www.linkedin.com/in/hadeeraltabaajuniorwebdeveloper)
+**Contact:** [Hadeer Altabaa LinkedIn Profile Link](https://www.linkedin.com/in/hadeeraltabaajuniorwebdeveloper/)
 
 ---
 
